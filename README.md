@@ -1,0 +1,1 @@
+A red velvet cake is a type of chocolate cake which is red in color and the frosting on the cake is mostly made of cream cheese.
